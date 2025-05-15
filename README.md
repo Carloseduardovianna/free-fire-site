@@ -34,7 +34,7 @@ Feito com 💣 pra quem joga sério!
 
 ### 🎉 Bora dominar o jogo juntos?  
 Me segue nas redes e fique por dentro das novidades:  
-- Instagram: [vianat.x7](https://instagram.com/seu_usuario)  
+- Instagram: [vianat.x7](https://instagram.com/vianat.x7)  
  
 ---
 
