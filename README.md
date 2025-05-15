@@ -34,9 +34,8 @@ Feito com 💣 pra quem joga sério!
 
 ### 🎉 Bora dominar o jogo juntos?  
 Me segue nas redes e fique por dentro das novidades:  
-- Instagram: [@seu_usuario](https://instagram.com/seu_usuario)  
-- YouTube: [Seu Canal FF](https://youtube.com/seucanal)  
-
+- Instagram: [vianat.x7](https://instagram.com/seu_usuario)  
+ 
 ---
 
 Feito com ❤️ por você, gamer raiz.
